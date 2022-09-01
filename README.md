@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Bom1919 and my irl name is: Johannes
+- 👀 I’m interested in: PC, Hardware, VR, Games and much more.
+- 🌱 I’m currently learning: Coding, IT, 3D Print and some more stuff.
+- 📫 How to reach me: Mail is: extra2johannesbom19@gmail.com
+- I have a cat, and my cats name is Bent.
